@@ -1,1 +1,1 @@
-# Esports
+# Eclipse Vortrex Esports
